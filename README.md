@@ -62,8 +62,7 @@
 
 ## 📫 Let's Connect  
 📧 Email: **myk04052004@gmail.com**  
-📄 [View My Resume](https://link-to-your-resume.com)  
-💼 [LinkedIn](https://linkedin.com/in/yourprofile)  
+📄 [View My Resume](https://drive.google.com/file/d/1hMQQ06wFv0k3mDNuQ3Bn8qSippLRJS-R/view)  
 
 ---
 
